@@ -1,2 +1,2 @@
 # LOLRepo
-LOLFUN
+b-b-but m@h bots!
